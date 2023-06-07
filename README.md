@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Briechelangat
+- 👋 Hi, I’m @Breanna Chelang'at.
 - 👀 I’m interested in travelling and cooking.
 - 🌱 I’m currently learning software development.
 
